@@ -1,1 +1,1 @@
-Salam aleyk
+Salam 
